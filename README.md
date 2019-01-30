@@ -3,4 +3,4 @@ https://github.com/MLxuejian/First/blob/master/%E8%B7%AF%E7%BA%BF.txt
 
 
 装备清单
-https://github.com/MLxuejian/First/blob/master/%E8%B7%AF%E7%BA%BF.txt
+https://github.com/MLxuejian/First/blob/master/%E8%A3%85%E5%A4%87.txt
